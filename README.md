@@ -7,7 +7,7 @@ the effectiveness of each by grading my talking-heads videos and daily
 converations.
 
 ### Attempt 1
-*blindly speaking more will just solidify my bad habits, I need better vocabulary foundation*
+*blindly speaking more will just solidify my bad habits, I need better vocabulary/literacy foundation*
 - crossword puzzles
 
 <br/>
