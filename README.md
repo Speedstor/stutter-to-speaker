@@ -13,4 +13,4 @@ converations.
 <br/>
 
 ### Potential Exercises
-1. Read and write about a non-engineering book every week: *It might be faster to improve reading rate solely by increasing "vocabulary"/literacy, than to just struggle through reading research papers, not finish any one of them"
+1. Read and write about a non-engineering book every week: *It might be faster to improve reading rate solely by increasing "vocabulary"/literacy, than to just struggle through reading research papers, not finish any one of them*
