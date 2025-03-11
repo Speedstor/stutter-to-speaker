@@ -9,6 +9,7 @@ converations.
 ### Attempt 1
 *blindly speaking more will just solidify my bad habits, I need better vocabulary/literacy foundation*
 - crossword puzzles
+- film myself speaking `(try talking about different things, organize the attempts later)`
 
 <br/>
 
