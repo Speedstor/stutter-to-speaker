@@ -18,3 +18,4 @@ converations.
 2. Compile complete pieces. Finish blog posts, proof-read essays. Release software and study-guides to myself.
 3. have a coherent coding stream on Youtube Live
 4. Write about what I consume. Write a paragraph, record a response to every content I read.
+5. Write engaging research paper style blog posts.
